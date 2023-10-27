@@ -1,2 +1,4 @@
 # Projeto-de-Impacto-do-Mundo-Virtual
 Projeto que falará sobre os impactos da imersão prolongada no mundo virtual
+
+Nesse projeto falaremos dos impactos positivos e negativos da imersão prolongada ao mundo virtual, narrando as problemáticas e os benefícios do acesso a redes sociais, utilização de plataformas digitais de Streaming de games, filmes e etc. Falaremos dos impactos das relações virtuais no mundo real e físico e como a sociedade tem se comportado com tamanho acesso a tecnologia. Faremos referência a jogos, livros, filósofos, séries e artigos. Ideias como o anime Sword Art Online, Game como CyberPunk, Séries como Black Mirror, Reportagens e Filósofos como Pierre Bourdieu serão abordados com aprofundamento no projeto, assim como também possíveis soluções para as problemáticas narradas.  
