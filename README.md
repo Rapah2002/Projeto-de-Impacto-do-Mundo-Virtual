@@ -1,4 +1,5 @@
-# Projeto-de-Impacto-do-Mundo-Virtual
+# Projeto-de-Impacto-do-Mundo-Virtual.
+
 Tema: Impactos da Imersão Prolongada no Mundo Virtual.
 Equipe: Ezequiel Magalhães (28256131) - zekes_234@hotmail.com;
         Herick Neris (25851471) - hericknerisr@gmail.com;
