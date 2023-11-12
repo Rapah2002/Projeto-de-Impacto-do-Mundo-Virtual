@@ -46,7 +46,7 @@ Atualmente, juntamente com os costumes que se modernizaram e deram espaço para 
  <br/>
 	De acordo com o site Scielo que publicou um artigo científico sobre “O Uso de Internet e Redes Sociais e a Relação com Indícios de Ansiedade e Depressão em Estudantes de Medicina”, podemos observar que o uso desajustado das redes tem causado sérios danos a mente e ao corpo das pessoas.<br/>
  <br/>
-	O artigo cita o termo Adicção da Internet, como o uso excessivo, vício e uso problemático como sinônimos para o uso desajustado das redes sociais. De acordo com o artigo esse transtorno é descrito como uma “preocupação intensa com o uso da internet, uso compulsivo e gasto de tempo excessivo na web, inabilidade para manejar esse tempo, considerando o mundo sem internet desinteressante. Podemos ler também nesse artigo que a falta de sono, desnutrição e falta de atividade física são comuns nesses casos.<br/>
+	O artigo cita o termo Adicção da Internet, como o uso excessivo, vício e uso problemático como sinônimos para o uso desajustado das redes sociais. De acordo com o artigo, esse transtorno é descrito como uma “preocupação intensa com o uso da internet, uso compulsivo e gasto excessivo de tempo na web, inabilidade para manejar esse tempo, considerando o mundo sem internet desinteressante. Podemos ler também nesse artigo que a falta de sono, desnutrição e falta de atividade física são comuns nesses casos.<br/>
  <br/>
 	Podemos observar que outros danos também são causados, como a ansiedade que pode ser causada por situações negativas, depressão por situações constrangedoras, ligando-se claramente ao cyberbullying, a modificação do corpo e da aparência por conta de situações delicadas ou por popularidade.<br/>
  <br/>
