@@ -83,13 +83,13 @@ Pergunta #2 de redes sociais: Que ações poderiam ser realizadas para melhorar 
 	Além desses fatores emocionais relacionados com o usuário, podemos colocar a própria inteligência artificial na situação, como até onde seria o limite dela, pois assistindo a série vemos que em momentos de tensão e risco a Han So Yean, Holo é capaz de causar um blecaute (apagão) em toda a cidade ou de hackear sistemas privados para acessar objetos. Trazendo para a realidade, os problemas que isso traria poderiam ser inimagináveis pois para a inteligência artificial, ela só estaria agradando seu usuário e não infringindo uma regra.<br/>
 <br/>
 	Podemos fazer um paralelo com o filme “Eu Robô” que mesmo com as três leis da robótica, foram além de sua programação e violaram o que seria o código de hamurabi (primeiro código na mesopotâmia enquanto era governada por Hamurabi que punia os criminosos) deles. No filme citado, as três leis se resumiam em:<br/>
-<br/>
-	* Um robô não pode ferir um ser humano ou permitir que um humano sofra algum mal; <br/>
-<br/>
-	* Os robôs devem obedecer às ordens dos humanos, exceto nos casos em que tais ordens entrem em conflito com a primeira lei; e <br/>
- <br/>
-	* Um robô deve proteger sua própria existência, desde que não entre em conflito com as leis anteriores. <br/>
- <br/>
+
+* Um robô não pode ferir um ser humano ou permitir que um humano sofra algum mal; <br/>
+
+* Os robôs devem obedecer às ordens dos humanos, exceto nos casos em que tais ordens entrem em conflito com a primeira lei; e <br/>
+ 
+* Um robô deve proteger sua própria existência, desde que não entre em conflito com as leis anteriores. <br/>
+ 
 	Na série Asiática podemos ver Ko Nan-Do falando de regras criadas para Holo, porém a IA às quebrando à medida que se relaciona mais com os seres humanos. Logo, podemos já ver um certo padrão que pode acabar acontecendo na realidade em um certo momento.<br/>
  <br/>
 	O cientista Stephen Hawking já afirmou que possuía um certo receio de que as Inteligências Artificiais evoluíssem tão rapidamente que nos superariam. E já tivemos várias amostras do desenvolvimento das IA ́s. No site Solutionhub, um artigo foi feito falando da Ética, Inteligência Artificial e a 3 leis da robótica, e mostra situações inusitadas. Por exemplo, podemos citar a IA que enganou jurados no teste de Turing. O teste se resumia em um grupo de jurados tentar diferenciar uma inteligência artificial de seres humanos através de diálogos entre uma dupla de debatedores. A interação aconteceria por meio de mensagens de texto e os juízes deveriam afirmar qual seria a máquina e qual seria o humano. Porém, em meio a um teste, Eugene Goostman (Inteligência Artificial criada por um ucraniano) fingiu ser um garoto de 13 anos Ucraniano e acabou enganando os juízes se tornando a primeira inteligência artificial a passar no teste de Turing.<br/>
