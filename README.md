@@ -247,4 +247,71 @@ Infelizmente diversas pessoas já se entregaram à depressão, ansiedade e até 
 <br/>
 	Esperamos que através deste estudo os leitores tomem conhecimentos dos riscos inerentes do uso contínuo das ferramentas tecnológicas da atualidade e sigam uma vida equilibrada e saudável, com uso regular e tranquilo.<br/>
 <br/>
-
+<H2>REFERÊNCIAS BIBLIOGRÁFICAS</H2>
+<h3>Para a Introdução:</h3>
+Sousa, Rafaela. Primeira Revolução Industrial. Primeira Revolução Industrial - Brasil Escola (uol.com.br);<br/>
+<br/>
+<h3>Para falar das Redes Sociais:</h3>
+Associação Brasileira de Educação Médica. O Uso de Internet e Redes Sociais e a Relação com Indícios de Ansiedade e Depressão em Estudantes de Medicina. SciELO - Brasil - O Uso de Internet e Redes Sociais e a Relação com Indícios de Ansiedade e Depressão em Estudantes de Medicina O Uso de Internet e Redes Sociais e a Relação com Indícios de Ansiedade e Depressão em Estudantes de Medicina; <br/>
+<br/>
+Campregher, Lucas. O Dilema das redes sociais: Uma conversa necessária. O Dilema das redes sociais: Uma conversa necessária - dti (dtidigital.com.br);<br/>
+<br/>
+<h3>Para falar de Holo, meu amor:</h3>
+Visconti, Patricia. “HOLO, MEU AMOR” – NOVA SÉRIE DE DRAMA DA NETFLIX ABORDA O RELACIONAMENTO DE UMA HUMANA COM UMA INTELIGÊNCIA ARTIFICIAL. “Holo, Meu Amor” – Nova série de drama da Netflix aborda o relacionamento de uma humana com uma Inteligência Artificial | O Barquinho Cultural;<br/>
+<br/>
+Hospital Oswaldo Cruz. VOCÊ JÁ OUVIU FALAR EM “CEGUEIRA FACIAL OU PROSOPAGNOSIA”?.Você já ouviu falar em “Cegueira Facial ou Prosopagnosia”? | Hospital Alemão Oswaldo Cruz (hospitaloswaldocruz.org.br);<br/>
+<br/>
+César Higa, Carlos. Código de Hamurabi. Código de Hamurabi: o que é, história, princípios - Mundo Educação (uol.com.br);<br/>
+<br/>
+Salvador Ribeiro Perrotti, Paulo. Ética, Inteligência Artificial E As 3 Leis Da Robótica – Engenheiro Do Google É Afastado Por Acreditar Que Ai Se Tornou Consciente. Ética, Inteligência Artificial E As 3 Leis Da Robótica – Engenheiro Do Google É Afastado Por Acreditar Que Ai Se Tornou Consciente – SolutionHUB;<br/>
+<br>
+Redação Época. Programa de computador finge ser um garoto de 13 anos - e engana juízes de uma competição. Programa de computador finge ser um garoto de 13 anos - e engana juízes de uma competição - ÉPOCA | Vida (globo.com);<br/>
+<h3>Para falar de Chappie:</h3>
+Carrozzo, Raphael. Em Chappie, Neill Blomkamp usa robôs para discutir questões sociais. Em Chappie, Neill Blomkamp usa robôs para discutir questões sociais;<br/>
+<br/>
+Wikipédia. Chappie. Chappie, Wikipédia A enciclopédia livre;<br/>
+<br/>
+Vignolo de Siqueira, Graça. Chappie. Chappie - Em pauta, Universidade Federal de Pelotas;<br/>
+<br/>
+<h3>Para falar sobre VRCHAT:</h3>
+Wikipédia. VRCHAT. VRChat – Wikipédia, a enciclopédia livre (wikipedia.org);<br/>
+<br/>
+VRCHAT. VRChat;<br/>
+<br/>
+NewHub. Children exposed to rape threats, racism, sexual activity in VRChat app - report. Crianças expostas a ameaças de estupro, racismo, atividade sexual no aplicativo VRChat - relatório | Hub de notícias (newshub.co.nz);<br/>
+<br/>
+RyanRed. Explorando o Lado Sombrio do VRCHAT (Realidade Virtual). (488) EXPLORANDO O LADO SOMBRIO DO VRCHAT (REALIDADE VIRTUAL) - YouTube;<br/>
+<br/>
+<h3>Para falar sobre Love Alarm e sobre o App Tinder:</h3>
+Olhar Digital. Conheça o enredo e personagens de Love Alarm. Dorama na Netflix: conheça enredo e personagens de Love Alarm (olhardigital.com.br);<br/>
+<br/>
+Olhar Digital. Tinder: História, dicas e principais recursos. Tinder: história, dicas e principais recursos do app de encontros (olhardigital.com.br);<br/>
+<br/>
+BBC. O lado sombrio dos apps de relacionamento. The darkest side of online dating - BBC Worklife;<br/>
+<br/>
+roast.dating. https://roast.dating/pt/blog/estatisticas-tinder;<br/>
+<br/>
+<h3>Para falar do Twitter (X Corp):</h3>
+Twitter – Wikipédia, a enciclopédia livre (wikipedia.org);<br/>
+<br/>
+O Lado Ruim do Twitter | Era o Que Tinha... (wordpress.com);<br/>
+<br/>
+<h3>Para falar do Panóptico de Foucault:</h3>
+Foucault - Panóptico • Razão Inadequada (razaoinadequada.com);<br/>
+<br/>
+Michel Foucault: biografia, obras, ideias, influências (uol.com.br);<br/>
+<br/>
+Pan-óptico – Wikipédia, a enciclopédia livre (wikipedia.org);</br>
+<br/>
+<h3>Para falar de CyberPunk 2077:</h3>
+Review de Cyberpunk 2077: jogo tem bom enredo em construção ruim (techtudo.com.br);<br/>
+<br/>
+Cyberpunk 2077 – Wikipédia, a enciclopédia livre (wikipedia.org);<br/>
+<br/>
+<h3>Para falar de Sword Art Online:</h3>
+Sword Art Online: Saiba mais sobre o anime de realidade virtual! - Aficionados;<br/>
+<br/>
+Sword Art Online – Wikipédia, a enciclopédia livre (wikipedia.org);<br/>
+<br/>
+Riscos dos jogos eletrônicos em crianças e adolescentes (usp.br).<br/>
+<br/>
