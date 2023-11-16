@@ -6,14 +6,13 @@
 Herick Neris (25851471) - hericknerisr@gmail.com; <br/>
 Lucas Simões (26447070) - lucas.simoes429@gmail.com; <br/>
 Raphael Veras (28253671) - rapha.rv2023@gmail.com.</div> <br/>
-        
-<h2>Resumo:</h2>  
-          Nesse projeto abordaremos os impactos positivos e negativos referentes a imersão prolongada ao mundo virtual, narrando as problemáticas e os benefícios do acesso a redes sociais, utilização de plataformas digitais de Streaming de games, filmes e etc. Falaremos dos impactos do mundo virtual no mundo real/físico e como a sociedade tem se comportado com tamanho acesso a tecnologia. Faremos referência a jogos, livros, filósofos, séries e artigos. Ideias como o anime Sword Art Online, Game como CyberPunk, Séries como Black Mirror, Reportagens e Filósofos como Pierre Bourdieu serão abordados com aprofundamento no projeto, assim como também possíveis soluções para as problemáticas narradas.<br/>
 
 <h2>Metódologia:</h2> 
+          Nesse projeto abordaremos os impactos positivos e negativos referentes a imersão prolongada ao mundo virtual, narrando as problemáticas e os benefícios do acesso a redes sociais, utilização de plataformas digitais de Streaming de games, filmes e etc. Falaremos dos impactos do mundo virtual no mundo real/físico e como a sociedade tem se comportado com tamanho acesso a tecnologia. Faremos referência a jogos, livros, filósofos, séries e artigos. Ideias como o anime Sword Art Online, Game como CyberPunk, Séries como Black Mirror, Reportagens e Filósofos como Pierre Bourdieu serão abordados com aprofundamento no projeto, assim como também possíveis soluções para as problemáticas narradas.<br/>
+<br/>
           Utilizaremos uma metódologia teórica que terá embasamento de filósofos, literatura, Streming, games e artigos que ressaltaram os impactos positivos e negativos da exposição prolongada ao mundo virtual. Juntamente com estes apoios colocaremos possíveis soluções para os impactos negativos e possíveis meios de utilização positivas para as atuais tecnologias, Além de darmos nossas opiniões e pontos de vista do referido tema.<br/>
 
-<h2>Introdução</h2>
+<h2>COMO TUDO COMEÇOU</h2>
         Na década de 1760, na Inglaterra, começava os primeiros passos do que conhecemos como a Primeira Revolução Industrial. Foi a partir dela que o mundo deu o pontapé inicial para o crescente aumento da tecnologia. Até aquele momento a sociedade vivia sobretudo de produtos manufaturados. O lucro e a velocidade se tornaram as palavras chaves, o que fez as indústrias se atualizarem com novas tecnologias que faziam crescer ainda mais estas vertentes. Logo, mais velocidade, mais dinheiro. Juntamente com este crescimento industrial surgiam mais invenções que tentavam melhorar a vida das pessoas e trazer conforto e tranquilidade para a sociedade.<br/>
 <br/>
 De acordo com o site Brasil Escola: "A Revolução Industrial foi dividida em três fases, baseadas nos avanços tecnológicos alcançados e suas consequentes transformações. São elas:<br/>
