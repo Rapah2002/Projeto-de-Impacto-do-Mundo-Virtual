@@ -93,7 +93,6 @@ Atualmente, juntamente com os costumes que se modernizaram e deram espaço para 
  <br/>
 	Levando-se em consideração esta situação, podemos montar um certo paralelo. Por mais que Holo, meu amor seja uma série de ficção, não podemos negar que traz temas bastantes reais e atuais na sociedade atual. Logo podemos ter a série Oriental como uma inspiração para reflexões éticas e morais em questão da direção que a tecnologia tem seguido.<br/>
 <br/>
-	Pergunta #3: Quais seriam os riscos reais de uma IA apresentar “sentimentos”? Seria Possível? (responder com artigos que falam de uma possível conscientização das IA´s).<br/>
 <h2>CHAPPIE</h2>
 	Em um futuro próximo, na cidade de Joanesburgo, na África do Sul, a empresa Tetravaal desenvolve uma linha de robôs que incorpora as forças policiais na tentativa de diminuir o terrorismo na cidade mais violenta do mundo na época, desenvolvido pelo engenheiro Deon (Dev Patel), os andróides fazem grande sucesso provocando seu rival e também engenheiro Vicent (Hugh Jackman) que teve seu projeto cada vez mais esquecido.<br/>
  <br/>
