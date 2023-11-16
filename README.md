@@ -2,7 +2,7 @@
 
 <h2>Tema: Impactos da Imersão Prolongada no Mundo Virtual.</h2>
 <h3>Universidade do Distrito Federal (UDF)</h3>
-<div> Equipe: Ezequiel Magalhães (28256131) - zekes_234@hotmail.com;  <br/>
+<div> Equipe: Ezequiel Magalhães (28256131) - zekiel.dev@gmail.com;  <br/>
 Herick Neris (25851471) - hericknerisr@gmail.com; <br/>
 Lucas Simões (26447070) - lucas.simoes429@gmail.com; <br/>
 Raphael Veras (28253671) - rapha.rv2023@gmail.com.</div> <br/>
