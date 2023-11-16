@@ -178,3 +178,73 @@ Infelizmente diversas pessoas já se entregaram à depressão, ansiedade e até 
 	Tudo isso podemos ver na geração atual. A geração que tem a tecnologia a seu favor para uma infinidade de coisas, devendo ser a geração mais inteligente e de pessoas que trariam uma revolução ao mundo, é na realidade a geração que menos tem crescido significativamente em diversas esferas. Podemos ver que a sociedade atual está mais fragilizada emocionalmente, fisicamente e mentalmente.<br/>
  <br/>
 	Ter controle e limite sobre tudo que fazemos é a melhor escolha, pois dessa forma conseguimos viver uma vida equilibrada e tranquila. Logo na esfera da educação,  profissional, sentimental e hoje o virtual, deve ter uma conscientização e filtragem. Dessa forma os problemas serão diminuídos e os pontos objetivos permanecerão.<br/>
+ <br/>
+ <h2>CYBERPUNK 2077</h2>
+	CyberPunk 2077 é um jogo eletrônico lançado em 2020 que nos leva a viver o personagem V, que seria um mercenário que vai para cidade distópica de Night City procurando uma jornada que o transforme em uma lenda. No jogo acabamos nos envolvendo em uma invasão a prioridade atrás de um microchip e no meio da fuga somos obrigados a inseri-lo em nossa cabeça. Ao acordar estamos dividindo o nosso corpo com um terrorista morto que procura vingança pelo que fizeram com ele. V procura agora como se livrar desse micro chip e permanecer vivo.<br/>
+ <br/>
+	A ambientação de Night City nos mostra um futuro caótico que fez o mundo quase acabar. As pessoas que vivem na cidade nos transparecem o vazio sentimental que carregam e como o futuro tecnológico não foi tão positivo como esperávamos que seria.<br/>
+ <br/>
+	Além da criminalidade que aumentou no futuro, podemos ver que os seres humanos começaram a substituir partes de seus corpos por tecnologias que os permitissem ficar mais fortes, mais rápidos e ter acesso a informação mais rápido. Nos mostrando o nível de dependência que ficamos.<br/>
+ <br/>
+	Podemos observar muitos pontos desse jogo na nossa sociedade atual, como a criminalidade e corrupção que são altos, além das megacidades que transbordam de pessoas de diversos lugares, jeitos e costumes. Podemos fazer um paralelo das tecnologias implantadas em nossos corpos com as tecnologias que estão para surgir como braços robóticos e implantes cerebrais que prometem facilitar a nossa vida diária e o nosso futuro.<br/>
+ <br/>
+	Sempre que falamos de futuro, esperamos um futuro bonito e com situações melhores do que vemos hoje. Porém com as missões que vamos realizando vemos que as pessoas se tornaram seres vazios e desesperados. O panorama da criminalidade e corrupção são altíssimos.<br/>
+ <br/>
+	Ao jogar este jogo podemos ver o uso negativo da tecnologia para armas e facilidades que acabam piorando a vida humana, como também as melhorias e evoluções que ela pode ceder para nós.<br/>
+ <br/>
+	Torçamos que o futuro próximo da nossa sociedade não caminhe para a realidade proposta pelo jogo e sim para um futuro de melhorias e crescimento realmente significativos para todos.<br/>
+ <h2>SWORD ART ONLINE</h2>
+	Sword Art Online é um light novel escrita por Reki Kawahara e com a ilustração de Abec. O sucesso foi explosivo e logo resolveram criar um anime. A animação foi lançada em 2012 e conquistou um grande público.<br/>
+ <br/>
+ 	O anime se passa em 2022 em uma realidade onde os vídeo-games de realidade virtual já atingiram seu ápice, tornando difícil a diferenciação da realidade e do virtual. Ao colocar os óculos de realidade virtual você loga no mundo do jogo escolhido e consegue realizar diversas ações e aventuras sem nem mesmo um controle físico em suas mãos, pois o óculos consegue captar seus impulsos cerebrais e realizar a ação determinada.<br/>
+  <br/>
+	No anime em questão nos é apresentado Kirigaya Kazuto ou Kirito como é conhecido nos jogos, procura escapar de sua própria realidade e tédio se aprofundando em diversos jogos de realidade virtual, se mostrando muito habilidoso e inteligente. Ao entrar junto com diversos jogadores do mundo todo em um jogo recém lançado chamado Aincrad, Kirigaya descobre que o criador do jogo retirou a opção de sair do jogo (deslogar), e que as únicas maneiras de sair seria terminando o jogo ou morrendo (caso o jogador fosse morto no jogo ou alguém retirasse o óculos do player o mesmo seria morto). Com essa regra, Kazuto e os milhares de jogadores de Aincrad devem ir evoluindo e subindo os diversos andares de imenso mundo, onde cada andar é mais difícil e complicado de se vencer, até chegar no último andar e derrotar o chefão misterioso.<br/>
+ <br/>
+	No início Kirito tenta evoluir e entrar para um grupo de jogadores, se tornando amigo deles rapidamente e se apegando ao grupo. Porém em uma determinada busca por objetos com o objetivo de evoluírem, todos do grupo de Kazuto são mortos e ele se sente culpado por não ter conseguido salvá-los. Com essa perda Kirigaya se isola de todos a sua volta e começa a evoluir sozinho fazendo somente alianças temporárias e ajudando pessoas que precisam. Ao se passar um tempo de sua perda, Kirito já havia se tornado um dos melhores jogadores sendo um dos mais fortes, ficando conhecido como o espadachim negro.<br/>
+ <br/>
+	Enquanto os jogadores procuram se aperfeiçoar e finalizar o jogo, se passam cerca de dois anos no mundo real. Com a dificuldade imposta no jogo, é criado um grupo de combate chamado de Cavaleiros do Juramento de Sangue que tem como foco chegar no último andar e ao mesmo tempo lutar contra o clã do Caixão Sorridente que tem como objetivo matar jogadores por diversão e instaurar o caos.<br/>
+ <br/>
+	Kirito e os Cavaleiros do Juramento de Sangue conseguem vencer o Caixão Sorridente e chegar no último andar terminando o jogo e libertando todos que estavam em Aincrad.<br/>
+ <br/>
+	Por mais que seja uma obra de ficção e não tenhamos evoluído semelhantemente ao desenho, podemos fazer uma certa ligação com a tecnologia atual que temos e como muitas pessoas estão ficando presas nos games. Os jogos têm se tornado cada dia mais próximos da realidade, chegando a transmitir sentimentos e experiências únicas. Com tamanho realismo e dinamismo é comum as pessoas optarem por jogar para se divertir, distrair, fugir da realidade entediante que possuem e conhecer novas pessoas como o protagonista. Entretanto, podemos ver que muitas pessoas estão ficando “presas“ nesses games, pois acabam ficando viciadas e dependentes.<br/>
+ <br/>
+	Após sair do mundo de Aincrad, Kazuto e todos que ficaram presos no jogo passam por terapia para retirar os problemas deixados pelo jogo e são obrigados a estudar em um colégio especial por terem um certo grau de perigo para o governo e para as pessoas “comuns”. Kirito e os demais jogadores apresentam uma certa dificuldade de diferenciar real de ficcional após saírem do jogo e dão relevância demais em problemas do mundo virtual.<br/>
+ <br/>
+	Podemos observar que até nos jogos atuais que temos, se utilizados em excesso acabam trazendo diversos problemas para as pessoas. De acordo com o Instituto de Matemática e Estatística (IME) de São Paulo, jogar games sem o devido cuidado e tempo adequado pode causar rigidez metal, influenciar negativamente, dessensibilizar frente a violência, causar lesões como tendinite, bursite e outras.<br/>
+ <br/>
+	Como pontos positivos podemos ver que com o uso de jogos as pessoas têm uma facilidade maior de aprender conteúdos acadêmicos com história, geografia e literatura (desde que o jogo traga estas temáticas), permite o jovem desenvolver habilidade de resposta rápida, entretenimento, criar amizade com diversas pessoas com um interesse em comum e outros pontos que são de muita valia fora a diversão, desde que com controle e filtragem.<br/>
+ <br/>
+ <h2>CONCLUSÃO</h2>
+	Através desta pesquisa podemos concluir que a imersão prolongada no mundo virtual tem trazido inúmeras consequências negativas em detrimento dos pontos positivos. Como tudo na vida, podemos observar que existem pontos positivos e negativos, sendo necessário ter um filtro e controle.<br/>
+ <br/>
+	Iniciamos este estudo relembrando um pouco o início da primeira revolução industrial, seus pontos específicos e quão importante foi para os dias atuais as mudanças feitas na década de 1770. Falamos da transição da indústria manufatureira para a indústria maquinofaturada. E como a partir dessa revolução vieram diversas inovações que visavam o conforto e a automação das atividades.<br/>
+ <br/>
+	Falamos da criação da Internet e como era seus primórdios no contexto da Guerra Fria entre Estados Unidos e União Soviética como seu objetivo de transmitir informações de maneira rápida e discreta e como ela se popularizou comercialmente chegando até as residências domiciliares.<br/>
+ <br/>
+	Citamos as maneiras antigas de entretenimento e de informação, como a televisão, rádio, jornais e até mesmo através de conversas na vizinhança. Os hábitos e comportamentos da sociedade da época eram mais restritos e íntimos, logo citamos a transição para uma sociedade mais aberta que através das redes sociais conseguem descobrir em tempo real situações e informações do mundo inteiro e mostrar o seu dia a dia, citando os pontos positivos e negativos das redes sociais como ferramentas de informação.<br/>
+ <br/>
+	Apresentamos a série asiática “Holo, meu amor” que retratava a história de uma jovem solitária chamada Han So-Yeon que possuía uma condição neurológica conhecida como cegueira facial e como a utilização de um óculos que possuía uma inteligência artificial chamada Holo permitiu ela se expressar e se divertir e também passar por diversas situações que foram difíceis porém inesquecíveis.<br/>
+ <br/>
+	Mencionamos artigos que retratavam a preocupação da inteligência artificial atingir o mesmo grau de inteligência e autonomia dos seres humanos ou maior e como uma IA conseguir fingir ser um ser humano no teste que diferencia uma pessoa de um robô.<br/>
+ <br/>
+ 	Falamos do filme Chappie que retrata um futuro próximo que são utilizados robôs e androides com inteligência artificial para prevenir crimes e ações terroristas, visando a preocupação da humanidade com a frágil consciência que as IA´s podem ter ao serem criadas ao ponto de poderem ser ensinadas a realizar crimes e atrocidades como algo natural, para uso no crime ou em guerras.<br/>
+<br/>
+	Citamos o uso de óculos de realidade virtual e do famoso game VRCHAT que tem influenciado muitos jovens e dividido muitas opiniões. Falamos dos pontos positivos como a socialização e imersão que deixa o mundo virtual e o real próximos, como também dos pontos negativos como os Moradores do Espelho e diversas situações reais que acabam acontecendo nesse jogo que são tristes.<br/>
+<br/>
+	Fizemos um resumo da série asiática “Love Alarm” que retrataria o uso de um app de relacionamento que acusaria se alguém perto do usuário o amasse, dando o mistério de quem seria e como ambos reagiriam, trazendo alegria e tristeza, ansiedade e frieza. A série trás diversos assuntos reais para a sua trama e nos faz refletir bastante sobre como a sociedade tem se comportado com as relações românticas.<br/>
+<br/>
+	Em paralelo a mesma citamos o uso de aplicativos de relacionamento como o “Tinder” na vida real e os impactos que ele trouxe para a sociedade, sobretudo após a pandemia de covid que nos trancou dentro de casa e cortou as relações físicas e de contato. Salientamos também as problemáticas dos app e os riscos que sobretudo o público feminino possui ao utilizá-lo.<br/>
+ <br/>
+	Relembramos a criação do “Twitter” e a transição dele ao famoso Elon Musk que o transformou no novo “X”,  lembrando dos objetivos iniciais que a ferramenta tinha e como ela se transformou para o uso atual que tem deixado muitas marcas negativas. Como o tribunal da internet que cancela todos que não vão na mesma direção que os demais e os lados positivos que o mesmo tem também, como a ajuda no exposed de pessoas que haviam realizado crimes e tinham se mantido escondidas.<br/>
+ <br/>
+	Fizemos menção ao filósofo Foucault e sua ideia relativa ao controle das massas por utilização de ferramentas sociais, abordando o panóptico do filósofo inglês Jeremy Bentham e citando as redes sociais como uma ferramenta oportuna para a manipulação e controle da sociedade e como sua estrutura nos deixa preso em uma vida monótona e sem ações reais.<br/>
+ <br/>
+	Resumimos um pouco da história por trâs do jogo “CyberPunk 2077” salientando os pontos de similaridade do jogo com o nosso mundo real e como é retratado de forma um pouco caótica e distópica o futuro.<br/>
+ <br/>
+	Por último citamos o anime “Sword Art Online” narrando os eventos principais da primeira temporada do anime e realizando um paralelo com o mundo real. Trouxemos problemas que são ressaltados no desenho para o mundo real e também um artigo da USP que fala dos problemas que o uso prolongado do videogame pode acarretar, além dos pontos fortes e positivos que o uso regular pode trazer.<br/>
+<br/>
+	Com todos estes temas abordados esperamos ter atingido o objetivo principal que seria mostrar os impactos positivos e negativos da imersão prolongada no mundo virtual através de séries, filmes, filósofos e artigos para uma maior assimilação e dinâmica com o leitor.<br/>
+<br/>
+	Esperamos que através deste estudo os leitores tomem conhecimentos dos riscos inerentes do uso contínuo das ferramentas tecnológicas da atualidade e sigam uma vida equilibrada e saudável, com uso regular e tranquilo.<br/>
+<br/>
+
